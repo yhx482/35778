@@ -40,4 +40,4 @@
 关键词覆盖：“日本AV免费”、“无码番号”、“免费在线观看AV”、“女优番号在线观看”、“高清JAV播放”、“AV番号资源导航”
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/yhx482/35778 ）</span>
